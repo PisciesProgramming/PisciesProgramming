@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on all projects that i can make diference.
 - 📫 How to reach me 
 @linkedin --> https://www.linkedin.com/in/cayosdj/ ✨
-@instagram --> @oquimera ✨
+@instagram --> @djoutravida ✨
 
 <!---
 PisciesProgramming/PisciesProgramming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
